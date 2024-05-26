@@ -1,3 +1,4 @@
 Olá, sou @CynthiaCabral.
 Estudante de Análise e Desenvolvimento de Sistemas.
-APM em busca de oportunidade e desafios!
+Mergullhando na Gestão de Produtos Digital e Design UX
+Apaixonada por Inteligência Artificial 
